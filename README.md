@@ -1,2 +1,0 @@
-# ryiagain
-udah capek 
